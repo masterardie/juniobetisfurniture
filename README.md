@@ -1,2 +1,0 @@
-# juniobetisfurniture
-Statis Website
